@@ -6,3 +6,5 @@ Our team is covering the energy sector and I am in charge of writing weekly repo
 During my free time, I enjoy swimming and playing video games. 
 I have been a professional swimmer since seven. 
 It’s pretty sad that there is only a 15-meter pool in our apartment, which is not quite useful, so I change to workout at the gym. 
+
+Email: yz4044@columbia.edu
